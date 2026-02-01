@@ -8,4 +8,6 @@ https://drive.google.com/file/d/1vunvlPPjUjzR0FgzhhqCb-2K2gY7_ykf/view?usp=shari
 https://drive.google.com/file/d/1arlpTwKfIRLy1y9oaBGViTCnf2mu_wur/view?usp=sharing - NateK - https://mstdn.ca/@NateK (Corona Supreme Taco Intel.)<br>
 https://drive.google.com/file/d/1llpyW2gW3YHlSmEihOvLrrui4eJrudGg/view?usp=sharing - NateK - Latest Backup. Jan 8th 2026
 
-https://drive.google.com/file/d/12us7q0gbfbnyyDFFkWWKKSDG3Z8Y3pMx/view?usp=sharing mastodon.eco/@ecoterrorismrocks account backup
+https://drive.google.com/file/d/12us7q0gbfbnyyDFFkWWKKSDG3Z8Y3pMx/view?usp=sharing - mastodon.eco/@ecoterrorismrocks account backup
+
+https://drive.google.com/file/d/1OO7nSIzqV5PQ_UPK7wyjtZWqvP5MpwnQ/view?usp=sharing - https://mstdn.ca/@rev2 rev2
