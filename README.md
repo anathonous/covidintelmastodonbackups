@@ -4,7 +4,8 @@ https://drive.google.com/file/d/1ErjCfeYz0jS6hbLy5GSPFqRi1Ud-XGGy/view?usp=shari
 https://drive.google.com/file/d/1tyJKm_pewrEDfZS-Ec9Gx8ebORoONsaA/view?usp=sharing - The Good Boi Shibe - mas.to May 21st 2026 berkley/unix/usask/base/honeypot<br>
 https://drive.google.com/file/d/1Ot3l0qw_205ep16OhvZ_Wu_RziADEx_9/view?usp=sharing - The Good Boi Shibe - mas.to May 31st 2026 - usask/berkley/usa/ca<br>
 https://drive.google.com/file/d/1ORZkWyWjE7tEaOyGZxM9AEIBrp-G1laG/view?usp=sharing - The Good Boi Shibe - mas.to June 6th 2026 / lets rap this up limpbizkit intel / overthrow the governments.<br>
-https://drive.google.com/file/d/19IG6CoGtrhkKTkiI5mGxRKczAyKSaCpC/view?usp=sharing - The Good Boi Shibe - mas.to June 13 2026 / Call to ARMS!
+https://drive.google.com/file/d/19IG6CoGtrhkKTkiI5mGxRKczAyKSaCpC/view?usp=sharing - The Good Boi Shibe - mas.to June 13 2026 / Call to ARMS!<br>
+https://drive.google.com/file/d/1vk9BLPaSvMkFn1BWnA7eNmXJo2z8OPQQ/view?usp=sharing - The Good Boi Shibe - mas.to June 19th 2026 / END! OVER! FINETO BITCHEO! <br>
 <br>
 
 
