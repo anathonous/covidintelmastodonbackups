@@ -11,6 +11,8 @@ https://drive.google.com/file/d/1JTfmI3wCxfYyJZDda6hTvqGAYSGDKP5w/view?usp=shari
 https://drive.google.com/file/d/14bWIgDdApmcu1_8z96V7E2b8gVuOYqPr/view?usp=sharing - July 14th 2026 - mas.to/@goodboishibe - Massive Intelligence leak. Old 70s craft. Recent Events. Americans, Anti Communism OP. HOSTILE. MASSIVE LEAK!<br>
 https://drive.google.com/file/d/1hijaxDo9mha6RHxIewW09SN4fAtJe1T4/view?usp=sharing - July 21st 2026 - mas.to/@goodboishibe - Massive Space Operation - Global Attacks - Anti Communist Military PsyOP LEAk<br>
 https://drive.google.com/file/d/10CYCrfTfLuB8XoFXXo99_aQc694mJGEQ/view?usp=sharing - July 27th 2026 - mas.to/@goodboishibe - Covid Cell Supreme Fast One PsyOP / Earthquake Intel / Massive trashtalk<br>
+https://drive.google.com/file/d/11YiKQrxokzbj-WTxklK7s9AVUwyvFrC3/view?usp=sharing - Aug 3rd 2026 - mas.to/@goodboishibe - Earthquake OP Intel . MI5 / CIA / Italians. Leak. VICTORY.<br>
+
 <br>
 
 
