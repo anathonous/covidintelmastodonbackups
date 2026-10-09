@@ -41,3 +41,9 @@ https://drive.google.com/file/d/1YeJLnCjjyjpSuOkxCYFlVZAV-48fsZrl/view?usp=shari
 https://drive.google.com/file/d/1I_4QnJo6Rtnndq4Y8bE3KlA2UVIeoz6c/view?usp=sharing - 4/2/2026 REV 2 / ERIN B / Alan Turing / COVID<br>
 https://drive.google.com/file/d/12o953ZCLK0El4A05fj_e2-9UhwNt5Su5/view?usp=sharing - 4/8/2026 REV 2 / Artimis / Opensource Software<br>
 https://drive.google.com/file/d/1FDnOCz5KNecmKbRakexrcDTvBjWk-c2-/view?usp=sharing - 5/12/2026 REV 2 / USASK - Social<br>
+
+2026 Sept / Oct German / Mossod Skyfall MKULTRA Craft. Counter Terrorism / COVID PSYOP / RUSSIAN PLAGUE TRADECRAFT Cosmis.
+
+sunet@hakan account backup - https://drive.google.com/file/d/1c6WGXUGPV_NrmM8Hj7BpwYpN5LSIQ-AW/view?usp=sharing
+
+toot@hakan account backup - https://drive.google.com/file/d/1QSjpf5me5Gk9d_DeRXgcq8eCKVZYhuP8/view?usp=sharing
