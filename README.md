@@ -21,9 +21,8 @@ https://drive.google.com/file/d/1NfN_wXe8uQaj87hq8yGyQTOTSKtRYnC1/view?usp=shari
 https://drive.google.com/file/d/1Bv9XwFhkFO09QlMihUNptEIQbfsGFG9l/view?usp=sharing - mas.to/@goodboishibe Sept 22nd 2026 -Full Covid Intel / CIA In Canada / Bioweapons labs / Esptein Class / British MI6 - Mossad pattern / Gay for Space Arch Community / Things to Come British Intel at USask / CIA/MI6 Tradecraft / Finland/Helsinki ETC / FULL INTEL LEAK Finale.<BR><br><br>
 <br>
 Nov 16 2026<br>
-https://drive.google.com/file/d/1FlXFcPezyad264A7Zoqk5rq1LOd8xRgH/view?usp=sharing<br
-
-Sunet.se Account Backup.<br
+https://drive.google.com/file/d/1FlXFcPezyad264A7Zoqk5rq1LOd8xRgH/view?usp=sharing<br>
+Sunet.se Account Backup.<br>
 https://mastodon.acc.sunet.se/@hakan<br>
 Saskatoon - Epstein Coronavirus / MI6 Mossad Craft. (all the stuff going on in saskatoon)<br><br><br>
 
